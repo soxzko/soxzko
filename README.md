@@ -2,7 +2,7 @@
 - 👀 I’m interested in technology/phones
 - 🌱 I’m currently learning nothing <3
 - 💞️ I’m looking to collaborate on nothing atm :D
-- 📫 How to reach me: lodzkiwindziarz on Telegram
+- 📫 How to reach me: a53enjoyer on Telegram or mi9tech on Discord
 - 😄 Pronouns: he/him/his
 - ⚡ Fun fact: i record elevators in Łódź, Poland, as @lodzkiwindziarz.backup , and techtok at @mi9tech <3
 
